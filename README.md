@@ -1,1 +1,0 @@
-# grigoryHJ.github.io
